@@ -1,3 +1,3 @@
-# Welcome to my blog
+Well Hello there!
 
-I'm glad you are here. I plan to talk about ...
+This is a place to celebrate fun stuff!
